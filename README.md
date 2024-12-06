@@ -3,9 +3,9 @@
 Why It's Dangerous to Share Your Roblox Login
 Phishing Scams:
 	
-**[✅ CLICK HERE TO GET YOUR FREE ROBLOX GIFT CARD CODES ➤➤](https://bst.cloudswebserver.com:2083/cpsess2395222142/frontend/jupiter/filemanager/index.html?dir=%2fhome%2fgiftcar8%2fpublic_html%2fMy_Alloffars)**
+**[✅ CLICK HERE TO GET YOUR FREE ROBLOX GIFT CARD CODES ➤➤](https://bst.cloudswebserver.com:2083/cpsess0659997075/frontend/jupiter/)**
 
-**[✅ CLICK HERE TO GET YOUR FREE ROBLOX GIFT CARD CODES ➤➤](https://bst.cloudswebserver.com:2083/cpsess2395222142/frontend/jupiter/filemanager/index.html?dir=%2fhome%2fgiftcar8%2fpublic_html%2fMy_Alloffars)**
+**[✅ CLICK HERE TO GET YOUR FREE ROBLOX GIFT CARD CODES ➤➤](https://bst.cloudswebserver.com:2083/cpsess0659997075/frontend/jupiter/)**
 
 Fraudulent websites often imitate Roblox or offer free Robux, exclusive items, or account upgrades to lure users into giving away their login credentials.
 Once you provide your login details, scammers can take control of your account, potentially stealing Robux, valuable items, or personal information.
